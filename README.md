@@ -1,0 +1,2 @@
+# Covid19FaceShiled_SimplifiedC19YY2
+Covid19FaceShiled designed by Yildirim Yazganarikan
